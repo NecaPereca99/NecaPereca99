@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NecaPereca99
 - 👀 I’m interested in architecture and traveling
-- 🌱 I’m currently learning about tourism in my country
+- 🌱 I’m currently learning about tourism in my country in here https://www.daibau.rs/magazin/arhitektura?atype=11
 - 💞️ I’m looking to collaborate on some new projects
 - 📫 How to reach me perecaneca995@gmail.com
 
